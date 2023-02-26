@@ -1,2 +1,2 @@
 # kamu-nanya
-Hmmmm
+download aja jangan manjaa
